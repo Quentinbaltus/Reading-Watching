@@ -2,6 +2,7 @@
 
 ### June 2019
 `WILL READ` [The Best Interface is No Interface](http://www.nointerface.com/book/) by Golden Krishna
+
 `WILL READ` [Essentialism The Disciplined Pursuit of Less](http://a.co/akwADM4) by Greg McKeown
 
 ---
