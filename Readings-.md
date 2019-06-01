@@ -8,6 +8,6 @@
 # Watching List
 
 ### June 2019
-`WILL WATCH` [Ryuichi Sakamoto: Coda](https://www.youtube.com/watch?v=Fl-pKw5n0mI) by Stephen Nomura Schible
+`TO WATCH` [Ryuichi Sakamoto: Coda](https://www.youtube.com/watch?v=Fl-pKw5n0mI) by Stephen Nomura Schible
 
 ---
