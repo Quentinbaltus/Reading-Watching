@@ -1,4 +1,4 @@
-# Book List
+# Books
 
 ### June 2019
 `WILL READ` [The Best Interface is No Interface](http://www.nointerface.com/book/) by Golden Krishna
@@ -7,7 +7,7 @@
 
 ---
 
-# Article List
+# Articles
 
 ### June 2019
 
@@ -15,7 +15,7 @@
 
 ---
 
-# Watching List
+# Movies & TV Shows
 
 ### June 2019
 `TO WATCH` [Ryuichi Sakamoto: Coda](https://www.youtube.com/watch?v=Fl-pKw5n0mI) by Stephen Nomura Schible
