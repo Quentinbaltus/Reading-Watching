@@ -13,6 +13,8 @@
 
 `READ` [How Does Spotify Know You So Well?](https://medium.com/s/story/spotifys-discover-weekly-how-machine-learning-finds-your-new-music-19a41ab76efe) by Sophia Ciocca 
 
+`READ` [The world needs a tech diet; here is how designers can help](https://essays.uxdesign.cc/tech-diet/?utm_source=densediscovery&utm_medium=email&utm_campaign=newsletter-issue-39) by Fabricio Teixeira & Caio Braga
+
 ---
 
 # Movies & TV Shows
