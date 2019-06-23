@@ -5,6 +5,10 @@
 
 `WILL READ` [Essentialism - The Disciplined Pursuit of Less](http://a.co/akwADM4) by Greg McKeown
 
+`READ` [Confessions d'un babyboomer](https://www.amazon.fr/Confessions-dun-babyboomer-Thierry-Ardisson/dp/2290353639) by Thierry Ardisson
+
+`READING` [In the Baba](https://www.amazon.fr/baba-Pierre-Lescure/dp/2253174033/ref=sr_1_1?__mk_fr_FR=ÅMÅŽÕÑ&keywords=In+the+baba&qid=1561302409&s=books&sr=1-1) by Pierre Lescure
+
 ---
 
 # Articles
