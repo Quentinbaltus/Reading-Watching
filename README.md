@@ -28,6 +28,8 @@
 
 `TO WATCH` [A Banana? At This Time of Night?](https://www.imdb.com/title/tt9010228/) by Tetsu Maeda
 
+`TO WATCH` [Kings](https://www.youtube.com/watch?v=bqZIo7MFV0w) by Deniz Gamze Ergüven
+
 ---
 
 
