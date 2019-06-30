@@ -6,6 +6,8 @@
 
 `TO READ` [Essentialism - The Disciplined Pursuit of Less](http://a.co/akwADM4) by Greg McKeown
 
+`TO READ` [Monstre](https://www.amazon.fr/Monstre-Gérard-DEPARDIEU-ebook/dp/B076VCGRH9/ref=sr_1_2?__mk_fr_FR=ÅMÅŽÕÑ&keywords=Monstres+depardieu&qid=1561884048&s=gateway&sr=8-2) by Gerard Depardieu
+
 ### June 2019
 
 `READ` [Confessions d'un babyboomer](https://www.amazon.fr/Confessions-dun-babyboomer-Thierry-Ardisson/dp/2290353639) by Thierry Ardisson
