@@ -2,8 +2,6 @@
 
 ### July 2019
 
-`TO READ` [Essentialism - The Disciplined Pursuit of Less](http://a.co/akwADM4) by Greg McKeown
-
 `READING` [The Best Interface is No Interface](http://www.nointerface.com/book/) by Golden Krishna
 
 `READING` [Let My People Go Surfing: The Education of a Reluctant Businessman](https://www.amazon.fr/Let-People-Surfing-Education-Businessman/dp/0143037838) by Yvon Chouinard
@@ -29,6 +27,8 @@
 ---
 
 # Movies & TV Shows
+
+### August 2019
 
 ### June 2019
 
